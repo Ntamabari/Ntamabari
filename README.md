@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ntamabari
+- 👀 I’m interested in learning more programming language
+- 🌱 I’m currently learning Blockchain #NITDA-Blockchain-Scholarship
+- 💞️ I’m looking to collaborate on Facebook, twitter, linkedIn, e.t.c
+- 📫 you can reach me on 07066010648, LinkedIn.com/francisJohn, Twitter.com/@ntamabari, facebook.com/francis.john.31392
+- I am Ntamabari Francis John
